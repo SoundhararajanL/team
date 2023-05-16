@@ -1,2 +1,0 @@
-# code written by tamilselvan
-
